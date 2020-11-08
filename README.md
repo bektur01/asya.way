@@ -1,4 +1,4 @@
 # asya.way
 
 ##screenshots
-![descr](i.imgur.com/JAfdt3V.jpg)
+![descr](https://imgur.com/5E2Vro5) asya.way
